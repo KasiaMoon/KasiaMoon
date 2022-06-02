@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KasiaMoon
-- 👀 I’m interested in space, mountain tracking and yoga
-- 🌱 I’m currently learning animation, music creating and researches
-- 💞️ I’m looking to collaborate on start-ups
+- 👀 Space exploration, trekking in the mountains, shooting with film cameras, pottery and yoga are my meditative hobbies
+- 🌱 I am currently studying animation, music making and embroidery
+- 💞️ Looking for cooperation in startups
 
 
 <!---
